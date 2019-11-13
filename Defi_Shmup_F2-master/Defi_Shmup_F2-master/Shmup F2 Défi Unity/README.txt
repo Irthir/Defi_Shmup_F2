@@ -1,1 +1,0 @@
-Lien du jeu Ready : https://ready.app.link/eSTUnlePz1
